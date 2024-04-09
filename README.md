@@ -1,1 +1,0 @@
-# pinarkullu.github.io
